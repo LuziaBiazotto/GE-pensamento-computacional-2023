@@ -1,2 +1,2 @@
-# GE-pensamento-computacional-2023
+<h1>Navegações
 <strong>Ocorreram no século XV
